@@ -1,2 +1,4 @@
 these were made from memory without looking anything up and they're definitely not accurate to the original livery btw. i would advise against using them
 you should probably make your own but i am including them just in case!
+
+the original is also included in this repo. if you're reading this you probably missed it
