@@ -1,1 +1,1 @@
-crediting me when using these isn't necessary but i would prefer to be
+i'd prefer to be credited if you use any of these
